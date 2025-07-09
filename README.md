@@ -1,1 +1,1 @@
-# Bitirme-2_Retina_G-z_Hastal-klar-_Tespiti
+# Bitirme-2_Retina_Goz_Hastalıkları_Tespiti
