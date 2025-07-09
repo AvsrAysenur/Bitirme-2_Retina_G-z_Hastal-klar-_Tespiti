@@ -1,0 +1,1 @@
+# Bitirme-2_Retina_G-z_Hastal-klar-_Tespiti
